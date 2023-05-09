@@ -1,2 +1,2 @@
 # DDOS-PANEL
-https://discord.gg/8g2BeusSrr
+Dms Telegram ; https://t.me/nxtbio207
